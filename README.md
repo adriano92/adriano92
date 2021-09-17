@@ -1,4 +1,4 @@
-	[currently undergoing maintenance.]
+	[under maintenance.]
 
 	[please wait...]
 
